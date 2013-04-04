@@ -6,4 +6,6 @@ The Isaac Newton Group offers 3 world class telescopes: the JKT (closed), INT an
 
 Lie #2: I can't think of one :(
 
-Collaboration work:
+
+Blah blah blah
+
